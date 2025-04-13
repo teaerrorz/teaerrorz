@@ -1,16 +1,15 @@
-## Hi there 👋
+@salvagedstrings is my irl bsf we aren't e-dating 💀
 
-<!--
-**teaerrorz/teaerrorz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+about me:
 
-Here are some ideas to get you started:
+i'm currently 18 (feb 4)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i'm diagnosed with schizotypal personality disorder, PLEASE be patient with me
+
+you can call me erz on here ig
+
+i'm new to pony town bear with me 😭🙏
+
+i'm not looking to make online "friends", kindly fuck off if i don't know you ^^
+
+(wip i might keep adding stuff)
